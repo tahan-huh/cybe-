@@ -21,4 +21,19 @@ Due yot gx boom ann
 
 
 
-.......loding 
+...loding 
+It is mad 
+Jxjdjdjdndoduekgxkshdnskakalpqjeyyrpeujdbdiwpshc.  NcncnxjchbnvmvnvnvnvnnvhxksishdhlaallHsghsdkMNGzlshddkhxNNmMMVKB
+nzgxndmxhskziMxbidyx
+Jxhxmxhxmdxukxoptjrpsudwlidpiqhueqh
+F.jrriorueowufdidurkeo
+R
+touw(?,ey
+
+r
+Y
+
+
+T
+Utwiant yvko/(y/n)yyyyu
+Xjhdjfydjs
